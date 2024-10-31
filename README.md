@@ -425,3 +425,530 @@ Here are 100 more very short sentences in American English:
 
 -----------------------------------------
 
+
+Here are 100 short sentences in American English:
+
+1. I enjoy hiking on weekends.
+2. She loves to bake cookies.
+3. He plays basketball every Saturday.
+4. We visit the museum once a month.
+5. They have a cat named Max.
+6. I drink coffee every morning.
+7. She reads a book before bed.
+8. He watches movies with friends.
+9. We go to the park after school.
+10. They play video games together.
+11. I write in my journal daily.
+12. She listens to music while studying.
+13. He rides his bike to work.
+14. We make dinner as a family.
+15. They go fishing every summer.
+16. I take photos of nature.
+17. She enjoys painting landscapes.
+18. He travels to new places often.
+19. We celebrate holidays with family.
+20. They cook dinner on the weekends.
+21. I love to watch the sunset.
+22. She practices yoga every morning.
+23. He studies hard for exams.
+24. We enjoy picnics in the park.
+25. They play soccer every Tuesday.
+26. I garden in my backyard.
+27. She collects postcards from travels.
+28. He attends classes in the evening.
+29. We explore new restaurants often.
+30. They volunteer at the animal shelter.
+31. I call my parents every week.
+32. She sends birthday cards to friends.
+33. He helps his neighbors with chores.
+34. We go camping every summer.
+35. They participate in community events.
+36. I meditate for ten minutes daily.
+37. She enjoys running in the morning.
+38. He listens to podcasts during workouts.
+39. We watch TV shows together.
+40. They bake bread from scratch.
+41. I clean the house on Saturdays.
+42. She shops for groceries every week.
+43. He organizes his desk regularly.
+44. We attend local concerts frequently.
+45. They hike trails in the mountains.
+46. I enjoy writing poetry in my spare time.
+47. She visits her grandparents every month.
+48. He likes to play chess with friends.
+49. We enjoy watching sports events.
+50. They take walks after dinner.
+51. I learn new recipes online.
+52. She studies languages in her free time.
+53. He practices guitar every evening.
+54. We enjoy road trips during summer.
+55. They explore local parks on weekends.
+56. I take my dog for a walk.
+57. She enjoys knitting in her spare time.
+58. He plays the drums in a band.
+59. We go to the library weekly.
+60. They attend yoga classes together.
+61. I listen to audiobooks while driving.
+62. She loves to dance at parties.
+63. He organizes community clean-ups.
+64. We make breakfast together on Sundays.
+65. They celebrate milestones with friends.
+66. I keep a planner for schedules.
+67. She enjoys visiting art galleries.
+68. He takes online courses for fun.
+69. We try new cuisines regularly.
+70. They enjoy movie marathons at home.
+71. I draw sketches in my notebook.
+72. She helps her friends with homework.
+73. He likes to swim in the ocean.
+74. We celebrate anniversaries in style.
+75. They go for bike rides in the park.
+76. I watch documentaries for learning.
+77. She enjoys spending time outdoors.
+78. He collects coins as a hobby.
+79. We share stories around the campfire.
+80. They attend family reunions every year.
+81. I go for runs in the morning.
+82. She enjoys playing board games.
+83. He loves to play the piano.
+84. We make smoothies for breakfast.
+85. They host game nights at home.
+86. I practice mindfulness techniques.
+87. She enjoys crafting in her free time.
+88. He plays tennis on the weekends.
+89. We attend local farmers' markets.
+90. They enjoy stargazing on clear nights.
+91. I volunteer at the community center.
+92. She enjoys gardening in her yard.
+93. He studies history in college.
+94. We explore nearby cities on weekends.
+95. They go for walks in nature.
+96. I enjoy listening to classical music.
+97. She loves to cook for friends.
+98. He plays cards with his family.
+99. We visit the zoo every summer.
+100. They take part in charity events.
+
+---------------------------------------------
+
+
+Here are 100 very short sentences in American English:
+
+1. I am happy.
+2. She is sad.
+3. He runs fast.
+4. We eat lunch.
+5. They play games.
+6. I love music.
+7. She likes dogs.
+8. He reads books.
+9. We watch movies.
+10. They dance well.
+11. I study hard.
+12. She cooks dinner.
+13. He rides bikes.
+14. We go shopping.
+15. They sing loudly.
+16. I draw pictures.
+17. She plays piano.
+18. He plays guitar.
+19. We travel often.
+20. They enjoy hiking.
+21. I drink coffee.
+22. She eats fruit.
+23. He takes naps.
+24. We have fun.
+25. They help others.
+26. I write stories.
+27. She paints well.
+28. He collects stamps.
+29. We swim together.
+30. They explore nature.
+31. I clean my room.
+32. She takes photos.
+33. He plays soccer.
+34. We share snacks.
+35. They build sandcastles.
+36. I ride the bus.
+37. She studies math.
+38. He fixes things.
+39. We visit family.
+40. They go to church.
+41. I eat breakfast.
+42. She enjoys tea.
+43. He helps with homework.
+44. We celebrate birthdays.
+45. They like pizza.
+46. I jog in the park.
+47. She teaches children.
+48. He listens to podcasts.
+49. We enjoy sunsets.
+50. They go to school.
+51. I bake cookies.
+52. She attends meetings.
+53. He works late.
+54. We read comics.
+55. They swim in the pool.
+56. I play chess.
+57. She visits friends.
+58. He rides horses.
+59. We play cards.
+60. They watch sports.
+61. I walk my dog.
+62. She plays with toys.
+63. He goes fishing.
+64. We dance at parties.
+65. They eat ice cream.
+66. I plant flowers.
+67. She learns languages.
+68. He runs marathons.
+69. We explore cities.
+70. They listen to music.
+71. I write emails.
+72. She enjoys fashion.
+73. He plays basketball.
+74. We enjoy road trips.
+75. They cook together.
+76. I take yoga classes.
+77. She watches documentaries.
+78. He travels abroad.
+79. We have picnics.
+80. They play volleyball.
+81. I go for walks.
+82. She enjoys reading.
+83. He visits museums.
+84. We go to the beach.
+85. They ride scooters.
+86. I paint landscapes.
+87. She shares her dreams.
+88. He makes coffee.
+89. We enjoy family time.
+90. They visit parks.
+91. I watch the news.
+92. She collects shells.
+93. He plays with friends.
+94. We enjoy game nights.
+95. They walk their dogs.
+96. I take long baths.
+97. She loves the rain.
+98. He visits the zoo.
+99. We attend concerts.
+100. They celebrate holidays.
+
+-----------------------------------------
+
+Here are 100 very short sentences in American English:
+
+1. I am here.
+2. She is nice.
+3. He runs fast.
+4. We are happy.
+5. They like pizza.
+6. It is cold.
+7. I have a dog.
+8. She reads daily.
+9. He works hard.
+10. We play games.
+11. They swim well.
+12. I love coffee.
+13. She sings beautifully.
+14. He rides bikes.
+15. We travel often.
+16. They dance together.
+17. I write letters.
+18. She cooks dinner.
+19. He draws pictures.
+20. We watch TV.
+21. They play cards.
+22. I take naps.
+23. She enjoys tea.
+24. He helps others.
+25. We celebrate birthdays.
+26. They go shopping.
+27. I study math.
+28. She paints well.
+29. He plays guitar.
+30. We enjoy nature.
+31. They listen to music.
+32. I eat breakfast.
+33. She attends class.
+34. He plays soccer.
+35. We visit friends.
+36. They walk dogs.
+37. I bake cookies.
+38. She learns Spanish.
+39. He runs marathons.
+40. We make crafts.
+41. They go hiking.
+42. I take photos.
+43. She writes stories.
+44. He fixes things.
+45. We enjoy sunsets.
+46. They go to church.
+47. I ride horses.
+48. She plays piano.
+49. He makes smoothies.
+50. We have fun.
+51. They swim laps.
+52. I read comics.
+53. She enjoys biking.
+54. He plays chess.
+55. We take trips.
+56. They volunteer locally.
+57. I jog in the park.
+58. She visits family.
+59. He enjoys fishing.
+60. We go out often.
+61. They play music.
+62. I run errands.
+63. She studies history.
+64. He plays basketball.
+65. We enjoy road trips.
+66. They eat ice cream.
+67. I attend meetings.
+68. She shares ideas.
+69. He plays with toys.
+70. We garden together.
+71. They watch plays.
+72. I call my mom.
+73. She sends gifts.
+74. He helps with homework.
+75. We explore cities.
+76. They bake bread.
+77. I do yoga.
+78. She collects stamps.
+79. He studies science.
+80. We go camping.
+81. They watch cartoons.
+82. I enjoy poetry.
+83. She draws cartoons.
+84. He plays drums.
+85. We celebrate holidays.
+86. They have fun.
+87. I listen to radio.
+88. She shops online.
+89. He attends concerts.
+90. We enjoy art.
+91. They do puzzles.
+92. I keep a diary.
+93. She makes jewelry.
+94. He plays pool.
+95. We visit parks.
+96. They read magazines.
+97. I learn new skills.
+98. She enjoys cooking.
+99. He helps at home.
+100. We take walks.
+
+----------------------------------------
+
+Here are 100 more very short sentences in American English:
+
+1. I am tired.
+2. She is busy.
+3. He likes sports.
+4. We have a cat.
+5. They enjoy reading.
+6. It is sunny.
+7. I feel great.
+8. She smiles often.
+9. He plays outside.
+10. We ride the bus.
+11. They take turns.
+12. I walk quickly.
+13. She draws well.
+14. He reads newspapers.
+15. We sing songs.
+16. They help each other.
+17. I drink tea.
+18. She loves animals.
+19. He runs every day.
+20. We share stories.
+21. They cook together.
+22. I play with kids.
+23. She studies art.
+24. He builds models.
+25. We watch the stars.
+26. They go dancing.
+27. I clean my room.
+28. She enjoys swimming.
+29. He plays with friends.
+30. We laugh a lot.
+31. They visit museums.
+32. I write poems.
+33. She helps the elderly.
+34. He enjoys gardening.
+35. We explore the beach.
+36. They ride scooters.
+37. I listen to music.
+38. She loves hiking.
+39. He takes long walks.
+40. We visit relatives.
+41. They enjoy fishing.
+42. I play board games.
+43. She takes good notes.
+44. He likes puzzles.
+45. We attend workshops.
+46. They eat lunch together.
+47. I do laundry.
+48. She reads fiction.
+49. He enjoys history.
+50. We practice speaking.
+51. They go for runs.
+52. I watch sports.
+53. She writes emails.
+54. He plays with toys.
+55. We share meals.
+56. They go on trips.
+57. I enjoy theater.
+58. She listens to audiobooks.
+59. He loves camping.
+60. We play trivia.
+61. They visit parks.
+62. I bake cakes.
+63. She enjoys photography.
+64. He plays the saxophone.
+65. We take classes.
+66. They write blogs.
+67. I swim in the pool.
+68. She enjoys knitting.
+69. He visits friends.
+70. We go on hikes.
+71. They collect coins.
+72. I try new recipes.
+73. She enjoys cycling.
+74. He builds furniture.
+75. We attend parties.
+76. They play basketball.
+77. I walk my dog.
+78. She enjoys shopping.
+79. He loves to read.
+80. We explore new places.
+81. They do yoga together.
+82. I play video games.
+83. She enjoys meditation.
+84. He plays the flute.
+85. We make smoothies.
+86. They share ideas.
+87. I teach a class.
+88. She helps with chores.
+89. He visits the library.
+90. We watch documentaries.
+91. They celebrate achievements.
+92. I learn new things.
+93. She writes letters.
+94. He enjoys traveling.
+95. We discuss topics.
+96. They play volleyball.
+97. I attend lectures.
+98. She helps at school.
+99. He enjoys baking.
+100. We relax at home.
+
+------------------------------------------
+
+
+Here are 100 more very short sentences in American English:
+
+1. I eat lunch.
+2. She drives fast.
+3. He likes coffee.
+4. We go running.
+5. They play tennis.
+6. It feels warm.
+7. I sing well.
+8. She rides horses.
+9. He makes breakfast.
+10. We enjoy picnics.
+11. They talk daily.
+12. I paint walls.
+13. She takes selfies.
+14. He rides the train.
+15. We bake pastries.
+16. They laugh easily.
+17. I check emails.
+18. She enjoys shopping.
+19. He waters plants.
+20. We share jokes.
+21. They greet warmly.
+22. I visit friends.
+23. She learns quickly.
+24. He talks loudly.
+25. We clean the house.
+26. They travel together.
+27. I read daily.
+28. She explores nature.
+29. He listens to jazz.
+30. We try new things.
+31. They organize events.
+32. I study science.
+33. She loves photography.
+34. He plays with blocks.
+35. We enjoy sunsets.
+36. They watch the news.
+37. I cook breakfast.
+38. She helps students.
+39. He rides a skateboard.
+40. We explore cities.
+41. They have a picnic.
+42. I run marathons.
+43. She visits coffee shops.
+44. He practices martial arts.
+45. We attend yoga classes.
+46. They make crafts.
+47. I read blogs.
+48. She enjoys history.
+49. He plays the violin.
+50. We watch animations.
+51. They hike mountains.
+52. I try new foods.
+53. She shares experiences.
+54. He enjoys car rides.
+55. We attend festivals.
+56. They take pictures.
+57. I walk in nature.
+58. She loves animals.
+59. He goes to the gym.
+60. We relax at home.
+61. They enjoy road trips.
+62. I make salad.
+63. She learns guitar.
+64. He organizes his closet.
+65. We play board games.
+66. They celebrate New Year.
+67. I volunteer often.
+68. She enjoys journaling.
+69. He builds models.
+70. We listen to radio.
+71. They play with pets.
+72. I clean my desk.
+73. She attends classes.
+74. He enjoys collecting.
+75. We go to movies.
+76. They visit art galleries.
+77. I exercise daily.
+78. She loves gardening.
+79. He enjoys reading comics.
+80. We share memories.
+81. They dance at weddings.
+82. I walk in the park.
+83. She watches YouTube.
+84. He takes notes.
+85. We share meals.
+86. They play sports.
+87. I enjoy quiet time.
+88. She visits her mother.
+89. He likes ice cream.
+90. We celebrate friendships.
+91. They help each other.
+92. I paint landscapes.
+93. She enjoys baking.
+94. He likes to travel.
+95. We visit local shops.
+96. They attend concerts.
+97. I enjoy the outdoors.
+98. She loves new experiences.
+99. He makes homemade pizza.
+100. We play in the snow.
+
+------------------------------------------------
